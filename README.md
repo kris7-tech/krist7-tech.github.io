@@ -1,0 +1,1 @@
+# krist7-tech.github.io
